@@ -7,4 +7,4 @@ I am a goofy, blonde girl who actually has really deep thoughts but likes to bur
 :princess: :fire: :v:
 
 This is a self portrait just in case you need it:
-:shell:
+:shell::honeybee:
