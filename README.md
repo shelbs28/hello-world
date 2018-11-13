@@ -21,7 +21,7 @@ Probably not. But I'm going to tell you anyways.
 
 ###A List of My Favorite Songs on _Glory Sound Prep_
 
-<ol start="12" reversed>
+<ol start="10" reversed>
 <li> _The Internet_</li>
     It's not that I didnt like this song, it probably just has the least amount of depth to me.
     You can listen to the song [here.](https://www.youtube.com/watch?v=W936TWjKZBQ)
@@ -35,6 +35,25 @@ Probably the most jazzy and dance-worthy song on the album. So fun and lighthear
 <li> _Conversations with my Wife_</li>
 Such a romantic, technology-hating song. You can listen to it [here.](https://www.youtube.com/watch?v=yku452cR6Gw)
 
+<li> _Couples Retreat_</li>
+Jazzy. You can listen to it [here.](https://www.youtube.com/watch?v=m1nr_b2qT9Y)
 
 <li> _Let's Begin_</li>
-I love the beat in this one. Sounds good in my car. You can listen to it [here.]()
+I love the beat in this one. Sounds good in my car. You can listen to it [here.](https://www.youtube.com/watch?v=TdWRBnYJk-Q)
+
+<li> _Adult Swim_</li>
+3 mixtapes in 1? Sign me up. You can listen to it [here.](https://www.youtube.com/watch?v=WxOQ6EeLAuQ)
+
+<li> _Cautionary Tales_</li>
+A king, a legend. You can listen to it [here.] (https://www.youtube.com/watch?v=nLzi9j95648)
+
+<li> _Stupid Deep_</li>
+I cried my eyes out the first time I heard this song. You can too. Listen to it [here.](https://www.youtube.com/watch?v=Q-scUJX_I8k)
+
+<li> _Mah's Joint_</li>
+The ending? The most beautiful thing I have ever heard. You can listen to it [here.](https://www.youtube.com/watch?v=cfbacRyEVTM)
+
+<li> _Blu_</li>
+I know this one sounds really pop culture and annoying, but it really makes me happy. Plus it is my favorite color. Favorite color = Favorite song. You can listen to it [here.](https://www.youtube.com/watch?v=EpSZK-4N3JM)
+
+THE END. You're welcome. 
