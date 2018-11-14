@@ -32,7 +32,7 @@ Probably not. But I'm going to tell you anyways.
 <li> _JT_</li>
 Probably the most jazzy and dance-worthy song on the album. So fun and lighthearted. It would be higher on the list, but Jon released the song earlier than he released the album, so I wore it out pretty quickly. You can listen to the song [here.](https://www.youtube.com/watch?v=Vj1XE7fsvHw)
 
-<li> *Conversations with my Wife*</li>
+<li> _Conversations with my Wife_</li>
 Such a romantic, technology-hating song. You can listen to it [here.](https://www.youtube.com/watch?v=yku452cR6Gw)
 
 <li> _Couples Retreat_</li>
